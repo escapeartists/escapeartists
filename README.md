@@ -1,8 +1,10 @@
-<p align=center>
-will redo github laterrr / semi-ia
-</p>
-
 <div align=center>
+<details>
+  <summary>pt info</summary>
+  **friday** . *he* prns / masc terms . 7teen
 
-  [here](https://github.com/knightsgrave)
+  if you’re reading this, this github is being severely reworked. as of late, i’m pretty busy and semi-inactive.
+
+  i’m usually not online unless by the courtesy of oomfs. if i am alone, feel free to c+h.
+</details>
 </div>
