@@ -1,6 +1,7 @@
 <div align=center>
 <details>
   <summary>pt info</summary>
+
   **friday** . *he* prns / masc terms . 7teen
 
   if you’re reading this, this github is being severely reworked. as of late, i’m pretty busy and semi-inactive.
