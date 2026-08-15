@@ -8,4 +8,6 @@
 
   i’m usually not online unless by the courtesy of oomfs. if i am alone, feel free to c+h.
 </details>
+
+[**lastfm**](https://www.last.fm/user/fishtalker)
 </div>
