@@ -2,7 +2,4 @@
 <img src=https://file.garden/aeWHuH8drAn4J5-A/blocktaleslogo>
 </div>
 
-<div align=center>
-
-  ![](https://file.garden/aeWHuH8drAn4J5-A/IMG_6661.png)
-</div>
+holy wip
