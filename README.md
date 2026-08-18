@@ -3,5 +3,6 @@
 </div>
 
 <div align=center>
-hella wip
+
+  ![](https://file.garden/aeWHuH8drAn4J5-A/IMG_6661.png)
 </div>
