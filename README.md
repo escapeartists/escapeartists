@@ -17,4 +17,6 @@
 <details>
   <summary>awesome pt mentions</summary>
   <img src=https://files.catbox.moe/8fix6h.png width=350px>
+
+[one of ponytown's ugliest](https://github.com/ponytowns-ugliest)
 </details>
