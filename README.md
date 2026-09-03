@@ -19,4 +19,6 @@
   <img src=https://files.catbox.moe/8fix6h.png width=350px>
 
 [one of ponytown's ugliest](https://github.com/ponytowns-ugliest)
+
+<img src=https://files.catbox.moe/4g19n6.png width=350px>
 </details>
