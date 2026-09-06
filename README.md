@@ -1,16 +1,9 @@
 <div align=center>
-    
-<img src=https://file.garden/aeWHuH8drAn4J5-A/blocktaleslogo width=475px>
-</div>
+    i'm reworking my github. will probably take a while.
 
-<div align=center>
+please iwc unless friends. i don't like talking a lot.
 
-[![](https://files.catbox.moe/z24jsc.png)](https://fluffle.cc/venomshanks)
-</div>
-
-<div align=center>
-
-[![](https://files.catbox.moe/wr8o5y.png)](https://friday.atabook.org)
+c+h is okay.
 </div>
 
 <div align=center>
