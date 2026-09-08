@@ -1,9 +1,17 @@
 <div align=center>
-    i'm reworking my github. will probably take a while.
+<details>
+    <summary>pt infooooooo</summary>
 
-please iwc unless friends. i don't like talking a lot.
+hi my name is **Friday**. my activity on here fluctuates a lot, and i’m semi-active as of now. only really online to hang out with oomfs.
 
-c+h is okay.
+if i’m online, i’m usually with saturday and his friends.
+
+i’m not a very talkative guy and sometimes have pub-chat disabled. c+h is always ok, w2i encouraged.
+
+hi oomfs hi saturday bestfriendd hi crumb trio i love you all 🥹
+
+ok bye
+</details>
 </div>
 
 <div align=center>
