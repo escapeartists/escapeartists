@@ -2,21 +2,19 @@
 <details>
     <summary>pt infooooooo</summary>
 
-hi my name is **Friday**. my activity on here fluctuates a lot, and i’m semi-active as of now. only really online to hang out with oomfs.
+my name is **FRIDAY**, i use hehim prns and im 17.
 
-if i’m online, i’m usually with saturday and his friends.
+iwc if under 15 and over 21, basic dni
 
-i’m not a very talkative guy and sometimes have pub-chat disabled. c+h is always ok, w2i encouraged.
+uuuuuuuhhhhhhhhh yeah idk thats it bro i dont really take ponytown seriously
+my activity fluctuates here a lot
 
-hi oomfs hi saturday bestfriendd hi crumb trio i love you all 🥹
+i usually sit at roblox / bakery area. feel free to C+H whenever and W2I to interact
 
-ok bye
+this github will be heavily in construction
+
+i no longer wish to affiliate with any ponytown nomination accounts . . nothing serious i just like to be me without a title :D
+
+hi oomfs hi crumb trio hi saturday
 </details>
 </div>
-
-<div align=center>
-<details>
-  <summary>awesome pt mentions</summary>
-  <img src=https://files.catbox.moe/8fix6h.png width=350px>
-<img src=https://file.garden/aoZX68bH5m5bEQ7X/me width=350px>
-</details>
